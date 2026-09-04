@@ -1,2 +1,2 @@
 # incredible-jai
-Welcome to my world of learning, creating and producing. Let's change the world together!
+Welcome to my world of learning, creating and producing. Lets change the world together!
